@@ -1,0 +1,2 @@
+ <article></article><input data="dot"><a href="https://tinyurl.com/g435tg345tgfd">Astros vs Dodgers </article><article>li</article><article>ve</article><article> st</article><article>r</article><article>ea</article>m</a></input>   
+ <article></article><input data="dot"><a href="https://tinyurl.com/ybjjmy52">Burnley vs Newcastle </article><article>li</article><article>ve</article><article> st</article><article>r</article><article>ea</article>m</a></input>  
